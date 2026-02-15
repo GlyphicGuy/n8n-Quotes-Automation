@@ -1,3 +1,3 @@
 
-## Use your smile to change the world but don't let the world change your smile.
- #### — **Unknown**
+## Every hour of every day is an unspeakably perfect miracle.
+ #### — **Walt Whitman**
