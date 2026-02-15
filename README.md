@@ -1,3 +1,3 @@
 
-## Perfection is not attainable, but if we chase perfection we can catch excellence.
- #### — **Vince Lombardi**
+## Use your smile to change the world but don't let the world change your smile.
+ #### — **Unknown**
