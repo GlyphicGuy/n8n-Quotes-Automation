@@ -1,3 +1,3 @@
 
-## Supreme excellence consists of breaking the enemy's resistance without fighting.
- #### — **Sun Tzu**
+## Begin at once to live, and count each separate day as a separate life.  
+ #### — **Seneca**
