@@ -1,3 +1,3 @@
 
-## Chop your own wood and it will warm you twice. 
- #### — **Henry Ford**
+## Supreme excellence consists of breaking the enemy's resistance without fighting.
+ #### — **Sun Tzu**
