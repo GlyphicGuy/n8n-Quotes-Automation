@@ -1,3 +1,3 @@
 
-> Your problem isn't the problem. Your reaction is the problem.
-> — **Unknown**
+> Chop your own wood and it will warm you twice. 
+> — **Henry Ford**
