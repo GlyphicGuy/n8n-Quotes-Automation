@@ -1,3 +1,3 @@
 
-## Every hour of every day is an unspeakably perfect miracle.
- #### — **Walt Whitman**
+## A moving door hinge never corrodes. Flowing water never grows stagnant.
+ #### — **Ming-Dao Deng**
