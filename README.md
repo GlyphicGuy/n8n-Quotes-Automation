@@ -1,3 +1,3 @@
 
-## A moving door hinge never corrodes. Flowing water never grows stagnant.
- #### — **Ming-Dao Deng**
+## Live the moment for the moment.
+ #### — **Michael Jordan**
