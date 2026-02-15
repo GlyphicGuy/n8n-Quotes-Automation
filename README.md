@@ -1,3 +1,3 @@
 
-## Begin at once to live, and count each separate day as a separate life.  
- #### — **Seneca**
+## Perfection is not attainable, but if we chase perfection we can catch excellence.
+ #### — **Vince Lombardi**
