@@ -1,3 +1,3 @@
 
-## Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice.
- #### — **Naval Ravikant**
+## Only those who dare to fail greatly can ever achieve greatly.
+ #### — **Robert F. Kennedy**
