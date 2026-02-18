@@ -1,3 +1,3 @@
 
-## What do we live for if not to make life less difficult for each other?
- #### — **T.S. Eliot**
+## All human wisdom is contained in these two words - Wait and Hope
+ #### — **Alexandre Dumas**
