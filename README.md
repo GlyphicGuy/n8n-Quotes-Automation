@@ -1,3 +1,3 @@
 
-## The only way out is through.
- #### — **Robert Frost**
+## The search for happiness is one of the chief sources of unhappiness.
+ #### — **Eric Hoffer**
