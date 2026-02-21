@@ -1,3 +1,3 @@
 
-## The search for happiness is one of the chief sources of unhappiness.
- #### — **Eric Hoffer**
+## Do every act of your life as if it were your last.
+ #### — **Marcus Aurelius**
