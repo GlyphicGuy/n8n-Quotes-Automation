@@ -1,3 +1,3 @@
 
-## Courage is fear that has said its prayers and decided to go forward anyway.
- #### — **Joyce Meyer**
+## Happiness is the meaning and the purpose of life, the whole aim and end of human existence.
+ #### — **Aristotle**
