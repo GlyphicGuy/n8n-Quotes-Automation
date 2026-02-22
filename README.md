@@ -1,3 +1,3 @@
 
-## When obstacles arise, you change your direction to reach your goal; you do not change your decision to get there.
- #### — **Zig Ziglar**
+## If you want to keep your memories, you first have to live them.
+ #### — **Bob Dylan**
