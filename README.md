@@ -1,3 +1,3 @@
 
-## If you want to keep your memories, you first have to live them.
- #### — **Bob Dylan**
+## Do not bite at the bait of pleasure, till you know there is no hook beneath it.
+ #### — **Thomas Jefferson**
