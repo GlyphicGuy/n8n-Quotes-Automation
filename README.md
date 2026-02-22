@@ -1,3 +1,3 @@
 
-## We have to walk in a way that we only print peace and serenity on the Earth. Walk as if you are kissing the Earth with your feet.
- #### — **Thich Nhat Hanh**
+## To accomplish big things, I am convinced you must first dream big dreams.
+ #### — **Conrad Hilton**
