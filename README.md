@@ -1,3 +1,3 @@
 
-## Do not bite at the bait of pleasure, till you know there is no hook beneath it.
- #### — **Thomas Jefferson**
+## The opportunity of defeating the enemy is provided by the enemy himself.
+ #### — **Sun Tzu**
