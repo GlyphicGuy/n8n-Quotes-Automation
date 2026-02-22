@@ -1,3 +1,3 @@
 
-## The opportunity of defeating the enemy is provided by the enemy himself.
- #### — **Sun Tzu**
+## It only takes a split second to smile and forget, yet to someone that needed it, it can last a lifetime.
+ #### — **Steve Maraboli**
