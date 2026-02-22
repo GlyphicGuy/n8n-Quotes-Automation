@@ -1,3 +1,3 @@
 
-## Study logic and math, because once you've mastered them, you won't fear any book.
- #### — **Naval Ravikant**
+## Everything you can imagine is real.
+ #### — **Pablo Picasso**
