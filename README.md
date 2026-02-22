@@ -1,3 +1,3 @@
 
-## Where there's life, there's hope.
- #### — **Stephen Hawking**
+## The difference between impossible and possible is a willing heart.
+ #### — **Lolly Daskal**
