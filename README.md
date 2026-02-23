@@ -1,3 +1,3 @@
 
-## The difference between impossible and possible is a willing heart.
- #### — **Lolly Daskal**
+## The most wasted day of all is that on which we have not laughed.
+ #### — **Nicolas Chamfort**
