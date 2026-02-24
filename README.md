@@ -1,3 +1,3 @@
 
-## Time is a game played beautifully by children.
- #### — **Heraclitus**
+## Every experience is a lesson. Every loss is a gain.
+ #### — **Sathya Sai Baba**
