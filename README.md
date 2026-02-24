@@ -1,3 +1,3 @@
 
-## The most wasted day of all is that on which we have not laughed.
- #### — **Nicolas Chamfort**
+## Time is a game played beautifully by children.
+ #### — **Heraclitus**
