@@ -1,3 +1,3 @@
 
-## Every experience is a lesson. Every loss is a gain.
- #### — **Sathya Sai Baba**
+## Waste no more time arguing about what a good man should be. Be one.
+ #### — **Marcus Aurelius**
