@@ -1,3 +1,3 @@
 
-## Waste no more time arguing about what a good man should be. Be one.
- #### — **Marcus Aurelius**
+## A man who dares to waste one hour of time has not discovered the value of life.
+ #### — **Charles Darwin**
