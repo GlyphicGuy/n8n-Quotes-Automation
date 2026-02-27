@@ -1,3 +1,3 @@
 
-## A man who dares to waste one hour of time has not discovered the value of life.
- #### — **Charles Darwin**
+## A fall into a ditch makes you wiser.
+ #### — **Chinese Proverb**
