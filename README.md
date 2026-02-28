@@ -1,3 +1,3 @@
 
-## Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence?
- #### — **Sathya Sai Baba**
+## The joy of life comes from our encounters with new experiences.
+ #### — **Christopher McCandless**
