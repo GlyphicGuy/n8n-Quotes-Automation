@@ -1,3 +1,3 @@
 
-## The joy of life comes from our encounters with new experiences.
- #### — **Christopher McCandless**
+## The two most powerful warriors are patience and time.
+ #### — **Leo Tolstoy**
