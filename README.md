@@ -1,3 +1,3 @@
 
-## The two most powerful warriors are patience and time.
- #### — **Leo Tolstoy**
+## Be fascinated instead of frustrated.
+ #### — **Jim Rohn**
