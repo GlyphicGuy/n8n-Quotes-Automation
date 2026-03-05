@@ -1,3 +1,3 @@
 
-## Go confidently in the direction of your dreams! Live the life you've imagined.
- #### — **Henry David Thoreau**
+## Correct what you can. Learn from what you can't.
+ #### — **Toni Morrison**
