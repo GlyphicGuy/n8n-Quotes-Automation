@@ -1,3 +1,3 @@
 
-## Correct what you can. Learn from what you can't.
- #### — **Toni Morrison**
+## It's beautiful to be alone. To be alone does not mean to be lonely. It means the mind is not influenced and contaminated by society.
+ #### — **Jiddu Krishnamurti**
