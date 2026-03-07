@@ -1,3 +1,3 @@
 
-## It's beautiful to be alone. To be alone does not mean to be lonely. It means the mind is not influenced and contaminated by society.
- #### — **Jiddu Krishnamurti**
+## It is in the darkness that one finds the light.
+ #### — **Meister Eckhart**
