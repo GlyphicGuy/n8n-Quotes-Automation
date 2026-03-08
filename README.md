@@ -1,3 +1,3 @@
 
-## It is in the darkness that one finds the light.
- #### — **Meister Eckhart**
+## My definition of success is control.
+ #### — **Kenneth Branagh**
