@@ -1,3 +1,3 @@
 
-## My definition of success is control.
- #### — **Kenneth Branagh**
+## Even in the grave, all is not lost.
+ #### — **Edgar Allan Poe**
