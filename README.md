@@ -1,3 +1,3 @@
 
-## When the time is gone, you can never get it back.
- #### — **Stephen King**
+## Never be bored, and you will never be boring.
+ #### — **Eleanor Roosevelt**
