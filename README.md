@@ -1,3 +1,3 @@
 
-## Never be bored, and you will never be boring.
- #### — **Eleanor Roosevelt**
+## What kills the creative force is not age or lack of talent, but our own spirit, our own attitude.
+ #### — **Robert Greene**
