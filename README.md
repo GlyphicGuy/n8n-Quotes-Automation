@@ -1,3 +1,3 @@
 
-## What kills the creative force is not age or lack of talent, but our own spirit, our own attitude.
- #### — **Robert Greene**
+## Have a vision. Be demanding.
+ #### — **Colin Powell**
