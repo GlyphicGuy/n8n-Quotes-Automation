@@ -1,3 +1,3 @@
 
-## Have a vision. Be demanding.
- #### — **Colin Powell**
+## One always begins to forgive a place as soon as it's left behind.
+ #### — **Charles Dickens**
