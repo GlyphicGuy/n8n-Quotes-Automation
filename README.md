@@ -1,3 +1,3 @@
 
-## One always begins to forgive a place as soon as it's left behind.
- #### — **Charles Dickens**
+## When you've got nothing, you've got nothing to lose.
+ #### — **Bob Dylan**
