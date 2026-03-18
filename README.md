@@ -1,3 +1,3 @@
 
-## When you've got nothing, you've got nothing to lose.
- #### — **Bob Dylan**
+## Great deeds are usually wrought at great risks.
+ #### — **Herodotus**
