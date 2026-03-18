@@ -1,3 +1,3 @@
 
-## Great deeds are usually wrought at great risks.
- #### — **Herodotus**
+## She who loves roses must be patient and not cry out when she is pierced by thorns.
+ #### — **Kenji Miyazawa**
