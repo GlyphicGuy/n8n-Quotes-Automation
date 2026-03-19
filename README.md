@@ -1,3 +1,3 @@
 
-## She who loves roses must be patient and not cry out when she is pierced by thorns.
- #### — **Kenji Miyazawa**
+## Always try to be a little kinder than necessary.
+ #### — **James Matthew Barrie**
