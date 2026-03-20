@@ -1,3 +1,3 @@
 
-## Always try to be a little kinder than necessary.
- #### — **James Matthew Barrie**
+## Sometimes you have to shut your eyes, so you can see the real beauty.
+ #### — **Kilian Jornet**
