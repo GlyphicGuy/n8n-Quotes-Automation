@@ -1,3 +1,3 @@
 
-## Sometimes you have to shut your eyes, so you can see the real beauty.
- #### — **Kilian Jornet**
+## Life isn't about finding yourself. Life is about creating yourself.
+ #### — **George Bernard Shaw**
