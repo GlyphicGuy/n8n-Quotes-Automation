@@ -1,3 +1,3 @@
 
-## Life isn't about finding yourself. Life is about creating yourself.
- #### — **George Bernard Shaw**
+## Always do your best. What you plant now, you will harvest later.
+ #### — **Og Mandino**
