@@ -1,3 +1,3 @@
 
-## Always do your best. What you plant now, you will harvest later.
- #### — **Og Mandino**
+## I do not seek. I find.
+ #### — **Pablo Picasso**
