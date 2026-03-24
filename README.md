@@ -1,3 +1,3 @@
 
-## I do not seek. I find.
- #### — **Pablo Picasso**
+## Good judgment comes from experience, and experience comes from bad judgment.
+ #### — **Rita Mae Brown**
