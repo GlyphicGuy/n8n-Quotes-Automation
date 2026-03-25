@@ -1,3 +1,3 @@
 
-## Good judgment comes from experience, and experience comes from bad judgment.
- #### — **Rita Mae Brown**
+## Spend eighty percent of your time focusing on the opportunities of tomorrow rather than the problems of yesterday.
+ #### — **Brian Tracy**
