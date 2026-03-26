@@ -1,3 +1,3 @@
 
-## Spend eighty percent of your time focusing on the opportunities of tomorrow rather than the problems of yesterday.
- #### — **Brian Tracy**
+## Genius is the ability to act rightly without precedent - the power to do the right thing the first time.
+ #### — **Elbert Hubbard**
