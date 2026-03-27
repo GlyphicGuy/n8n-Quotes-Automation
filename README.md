@@ -1,3 +1,3 @@
 
-## A change is brought about because ordinary people do extraordinary things.
- #### — **Barack Obama**
+## Everything has its beauty, but not everyone sees it. 
+ #### — **Confucius**
