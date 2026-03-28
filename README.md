@@ -1,3 +1,3 @@
 
-## Everything has its beauty, but not everyone sees it. 
- #### — **Confucius**
+## When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place.
+ #### — **Bhagavad Gita**
