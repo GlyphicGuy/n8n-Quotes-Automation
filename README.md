@@ -1,3 +1,3 @@
 
-## When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place.
- #### — **Bhagavad Gita**
+## Great things happen to those who don't stop believing, trying, learning, and being grateful.
+ #### — **Roy T. Bennett**
