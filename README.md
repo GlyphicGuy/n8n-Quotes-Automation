@@ -1,3 +1,3 @@
 
-## Great things happen to those who don't stop believing, trying, learning, and being grateful.
- #### — **Roy T. Bennett**
+## Be kind, for everyone you meet is fighting a harder battle.
+ #### — **Plato**
