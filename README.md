@@ -1,3 +1,3 @@
 
-## The wisest men follow their own direction.
- #### — **Euripides**
+## There can be no greater gift than that of giving one's time and energy to help others without expecting anything in return.
+ #### — **Nelson Mandela**
