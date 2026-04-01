@@ -1,3 +1,3 @@
 
-## There can be no greater gift than that of giving one's time and energy to help others without expecting anything in return.
- #### — **Nelson Mandela**
+## To accomplish big things, I am convinced you must first dream big dreams.
+ #### — **Conrad Hilton**
