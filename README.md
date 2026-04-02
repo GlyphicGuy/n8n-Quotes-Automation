@@ -1,3 +1,3 @@
 
-## To accomplish big things, I am convinced you must first dream big dreams.
- #### — **Conrad Hilton**
+## Take the attitude of a student. Never be too big to ask questions. Never know too much to learn something new.
+ #### — **Og Mandino**
