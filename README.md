@@ -1,3 +1,3 @@
 
-## Take the attitude of a student. Never be too big to ask questions. Never know too much to learn something new.
- #### — **Og Mandino**
+## Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit.
+ #### — **Napoleon Hill**
