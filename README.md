@@ -1,3 +1,3 @@
 
-## Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit.
- #### — **Napoleon Hill**
+## Money is only a tool. It will take you wherever you wish, but it will not replace you as the driver.
+ #### — **Ayn Rand**
