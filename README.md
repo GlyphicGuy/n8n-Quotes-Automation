@@ -1,3 +1,3 @@
 
-## Do not fear failure but rather fear not trying.
- #### — **Roy T. Bennett**
+## Disobedience is the true foundation of liberty. The obedient must be slaves.
+ #### — **Henry David Thoreau**
