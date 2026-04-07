@@ -1,3 +1,3 @@
 
-## Disobedience is the true foundation of liberty. The obedient must be slaves.
- #### — **Henry David Thoreau**
+## Life reflects your own thoughts back to you.
+ #### — **Napoleon Hill**
