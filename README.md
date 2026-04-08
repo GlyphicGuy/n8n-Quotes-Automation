@@ -1,3 +1,3 @@
 
-## Life reflects your own thoughts back to you.
- #### — **Napoleon Hill**
+## True life is lived when tiny changes occur.
+ #### — **Leo Tolstoy**
