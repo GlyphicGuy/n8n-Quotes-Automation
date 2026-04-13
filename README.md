@@ -1,3 +1,3 @@
 
-## Don't concern yourself with the money. Be of service. Build. Work. Dream. Create.
- #### — **Earl Nightingale**
+## It's OK to have your eggs in one basket as long as you control what happens to that basket.
+ #### — **Elon Musk**
