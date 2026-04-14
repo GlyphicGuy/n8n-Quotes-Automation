@@ -1,3 +1,3 @@
 
-## It's OK to have your eggs in one basket as long as you control what happens to that basket.
- #### — **Elon Musk**
+## To achieve, you need thought. You have to know what you are doing and that's real power.
+ #### — **Ayn Rand**
