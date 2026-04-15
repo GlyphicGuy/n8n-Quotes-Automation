@@ -1,3 +1,3 @@
 
-## To achieve, you need thought. You have to know what you are doing and that's real power.
- #### — **Ayn Rand**
+## Too many of us are not living our dreams because we are living our fears.
+ #### — **Les Brown**
