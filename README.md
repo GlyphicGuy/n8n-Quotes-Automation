@@ -1,3 +1,3 @@
 
-## Too many of us are not living our dreams because we are living our fears.
- #### — **Les Brown**
+## The secret of life isn't what happens to you, but what you do with what happens to you.
+ #### — **Norman Vincent Peale**
