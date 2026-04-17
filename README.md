@@ -1,3 +1,3 @@
 
-## The secret of life isn't what happens to you, but what you do with what happens to you.
- #### — **Norman Vincent Peale**
+## When we think about our strengths, we are strong. When we think about our weaknesses, we are weak.
+ #### — **Peter A. Cohen**
