@@ -1,3 +1,3 @@
 
-## Confidence is not a guarantee of success, but a pattern of thinking that will improve your likelihood of success, a tenacious search for ways to make things work.
- #### — **John Eliot**
+## There is no limit to the amount of good you can do if you don't care who gets the credit.
+ #### — **Ronald Reagan**
