@@ -1,3 +1,3 @@
 
-## Work is always an antidote to depression.
- #### — **Eleanor Roosevelt**
+## If you cannot understand something, then you have understood it incorrectly.
+ #### — **Kabir**
