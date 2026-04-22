@@ -1,3 +1,3 @@
 
-## If you cannot understand something, then you have understood it incorrectly.
- #### — **Kabir**
+## Out of your vulnerabilities will come your strength.
+ #### — **Sigmund Freud**
