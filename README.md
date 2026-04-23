@@ -1,3 +1,3 @@
 
-## Out of your vulnerabilities will come your strength.
- #### — **Sigmund Freud**
+## Be yourself; everyone else is already taken 
+ #### — **Oscar Wilde**
