@@ -1,3 +1,3 @@
 
-## Be yourself; everyone else is already taken 
- #### — **Oscar Wilde**
+## The wiser you get, the less you care to look like a fool.
+ #### — **Maxime Lagace**
