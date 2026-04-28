@@ -1,3 +1,3 @@
 
-## You have to accept whatever comes, and the only important thing is that you meet it with the best you have to give.
- #### — **Eleanor Roosevelt**
+## Little minds have little worries, big minds have no time for worries.
+ #### — **Ralph Waldo Emerson**
