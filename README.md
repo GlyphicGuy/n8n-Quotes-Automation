@@ -1,3 +1,3 @@
 
-## Every man desires to live long, but no man wishes to be old.
- #### — **Jonathan Swift**
+## Life has no limitations except the ones you make.
+ #### — **Les Brown**
