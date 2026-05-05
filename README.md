@@ -1,3 +1,3 @@
 
-## Life is from the inside out. When you shift on the inside, life shifts on the outside.
- #### — **Kamal Ravikant**
+## Doubt is an uncomfortable condition, but certainty is a ridiculous one.
+ #### — **Voltaire**
