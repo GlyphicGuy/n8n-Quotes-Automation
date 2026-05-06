@@ -1,3 +1,3 @@
 
-## Doubt is an uncomfortable condition, but certainty is a ridiculous one.
- #### — **Voltaire**
+## You will face many defeats in life, but never let yourself be defeated.
+ #### — **Maya Angelou**
