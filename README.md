@@ -1,3 +1,3 @@
 
-## You will face many defeats in life, but never let yourself be defeated.
- #### — **Maya Angelou**
+## Don't just sit there. Do something. The answers will follow.
+ #### — **Mark Manson**
