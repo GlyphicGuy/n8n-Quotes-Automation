@@ -1,3 +1,3 @@
 
-## Don't just sit there. Do something. The answers will follow.
- #### — **Mark Manson**
+## Sometimes you will never know the value of something, until it becomes a memory.
+ #### — **Dr. Seuss**
