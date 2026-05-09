@@ -1,3 +1,3 @@
 
-## Sometimes you will never know the value of something, until it becomes a memory.
- #### — **Dr. Seuss**
+## Through discipline comes freedom.
+ #### — **Aristotle**
