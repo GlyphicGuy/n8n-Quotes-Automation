@@ -1,3 +1,3 @@
 
-## The person who says something is impossible should not interrupt the person who is doing it.
- #### — **Chinese Proverb**
+## If we have no peace, it is because we have forgotten that we belong to each other.
+ #### — **Mother Teresa**
