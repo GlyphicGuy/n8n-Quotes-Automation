@@ -1,3 +1,3 @@
 
-## If we have no peace, it is because we have forgotten that we belong to each other.
- #### — **Mother Teresa**
+## Becoming a great leader doesn't mean being perfect. it means living with your imperfections.
+ #### — **Lolly Daskal**
