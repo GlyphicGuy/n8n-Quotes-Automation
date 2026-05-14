@@ -1,3 +1,3 @@
 
-## Becoming a great leader doesn't mean being perfect. it means living with your imperfections.
- #### — **Lolly Daskal**
+## Worry is a waste of emotional reserve.
+ #### — **Ayn Rand**
