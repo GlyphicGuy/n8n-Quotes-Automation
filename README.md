@@ -1,3 +1,3 @@
 
-## Worry is a waste of emotional reserve.
- #### — **Ayn Rand**
+## The world is a puzzle; no need to make sense out of it.
+ #### — **Socrates**
