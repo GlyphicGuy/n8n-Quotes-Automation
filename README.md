@@ -1,3 +1,3 @@
 
-## The world is a puzzle; no need to make sense out of it.
- #### — **Socrates**
+## We are all self-made, but only the successful will admit it.
+ #### — **Earl Nightingale**
