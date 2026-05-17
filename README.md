@@ -1,3 +1,3 @@
 
-## We are all self-made, but only the successful will admit it.
- #### — **Earl Nightingale**
+## Engage in those actions and thoughts that nurture the good qualities you want to have.
+ #### — **Paramahansa Yogananda**
