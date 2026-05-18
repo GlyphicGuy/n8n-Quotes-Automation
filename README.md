@@ -1,3 +1,3 @@
 
-## Engage in those actions and thoughts that nurture the good qualities you want to have.
- #### — **Paramahansa Yogananda**
+## Dreams are the touchstones of our characters.
+ #### — **Henry David Thoreau**
