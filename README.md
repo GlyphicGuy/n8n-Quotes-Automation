@@ -1,3 +1,3 @@
 
-## Dreams are the touchstones of our characters.
- #### — **Henry David Thoreau**
+## A good teacher opens the door for you, but you must enter the room by yourself.
+ #### — **Zen Proverb**
