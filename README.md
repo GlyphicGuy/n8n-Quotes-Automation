@@ -1,3 +1,3 @@
 
-## A good teacher opens the door for you, but you must enter the room by yourself.
- #### — **Zen Proverb**
+## Do not look for approval except for the consciousness of doing your best.
+ #### — **Andrew Carnegie**
