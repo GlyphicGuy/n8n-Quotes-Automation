@@ -1,3 +1,3 @@
 
-## Do not look for approval except for the consciousness of doing your best.
- #### — **Andrew Carnegie**
+## I am not absentminded. It is the presence of mind that makes me unaware of everything else.
+ #### — **Gilbert Chesterton**
