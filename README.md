@@ -1,3 +1,3 @@
 
-## I am not absentminded. It is the presence of mind that makes me unaware of everything else.
- #### — **Gilbert Chesterton**
+## I know not all that may be coming, but be it what it will, I'll go to it laughing.
+ #### — **Herman Melville**
