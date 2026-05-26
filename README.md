@@ -1,3 +1,3 @@
 
-## People acting together as a group can accomplish things which no individual acting alone could ever hope to bring about.
- #### — **Franklin D. Roosevelt**
+## Be curious, not judgmental.
+ #### — **Walt Whitman**
