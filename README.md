@@ -1,3 +1,3 @@
 
-## I try more and more to be myself, caring relatively little whether people approve or disapprove.
- #### — **Vincent van Gogh**
+## Growing up is losing some illusions, in order to acquire others.
+ #### — **Virginia Woolf**
