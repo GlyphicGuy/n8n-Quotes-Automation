@@ -1,3 +1,3 @@
 
-## Growing up is losing some illusions, in order to acquire others.
- #### — **Virginia Woolf**
+## When you believe in a thing, believe in it all the way, implicitly and unquestionable.
+ #### — **Walt Disney**
