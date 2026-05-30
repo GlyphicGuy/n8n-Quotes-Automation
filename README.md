@@ -1,3 +1,3 @@
 
-## When you believe in a thing, believe in it all the way, implicitly and unquestionable.
- #### — **Walt Disney**
+## Don't be pushed by your problems; be led by your dreams.
+ #### — **Unknown**
