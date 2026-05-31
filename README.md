@@ -1,3 +1,3 @@
 
-## Don't be pushed by your problems; be led by your dreams.
- #### — **Unknown**
+## What the mind can conceive, it can achieve.
+ #### — **Napoleon Hill**
