@@ -1,3 +1,3 @@
 
-## What the mind can conceive, it can achieve.
- #### — **Napoleon Hill**
+## We can know only that we know nothing. And that is the highest degree of human wisdom.
+ #### — **Leo Tolstoy**
