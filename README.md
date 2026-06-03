@@ -1,3 +1,3 @@
 
-## He is not a lover who does not love forever.
- #### — **Euripides**
+## Just because you are happy it does not mean that the day is perfect but that you have looked beyond its imperfections.
+ #### — **Bob Marley**
