@@ -1,3 +1,3 @@
 
-## Just because you are happy it does not mean that the day is perfect but that you have looked beyond its imperfections.
- #### — **Bob Marley**
+## The Law of Concentration states that whatever you dwell upon grows. The more you think about something, the more it becomes part of your reality.
+ #### — **Brian Tracy**
