@@ -1,3 +1,3 @@
 
-## In peace, sons bury their fathers. In war, fathers bury their sons.
- #### — **Herodotus**
+## A moving door hinge never corrodes. Flowing water never grows stagnant.
+ #### — **Ming-Dao Deng**
