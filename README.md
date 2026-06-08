@@ -1,3 +1,3 @@
 
-## A moving door hinge never corrodes. Flowing water never grows stagnant.
- #### — **Ming-Dao Deng**
+## To be angry is to revenge the faults of others on ourselves.
+ #### — **Alexander Pope**
