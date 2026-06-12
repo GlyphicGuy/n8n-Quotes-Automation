@@ -1,3 +1,3 @@
 
-## To belittle, you have to be little.
- #### — **Kahlil Gibran**
+## All problems are illusions of the mind.
+ #### — **Eckhart Tolle**
