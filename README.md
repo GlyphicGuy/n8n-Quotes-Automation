@@ -1,3 +1,3 @@
 
-## All problems are illusions of the mind.
- #### — **Eckhart Tolle**
+## There is nothing better than the encouragement of a good friend.
+ #### — **David Brinkley**
