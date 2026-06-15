@@ -1,3 +1,3 @@
 
-## There is nothing better than the encouragement of a good friend.
- #### — **David Brinkley**
+## The biggest adventure you can ever take is to live the life of your dreams.
+ #### — **Oprah Winfrey**
