@@ -1,3 +1,3 @@
 
-## The biggest adventure you can ever take is to live the life of your dreams.
- #### — **Oprah Winfrey**
+## No need to hurry. No need to sparkle. No need to be anybody but oneself.
+ #### — **Virginia Woolf**
