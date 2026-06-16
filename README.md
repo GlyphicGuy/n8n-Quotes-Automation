@@ -1,3 +1,3 @@
 
-## No need to hurry. No need to sparkle. No need to be anybody but oneself.
- #### — **Virginia Woolf**
+## To live outside the law, you must be honest.
+ #### — **Bob Dylan**
