@@ -1,3 +1,3 @@
 
-## To live outside the law, you must be honest.
- #### — **Bob Dylan**
+## I do not seek. I find.
+ #### — **Pablo Picasso**
