@@ -1,3 +1,3 @@
 
-## I do not seek. I find.
- #### — **Pablo Picasso**
+## The primary point of this existence is to live, and all living things move and grow.
+ #### — **Ming-Dao Deng**
