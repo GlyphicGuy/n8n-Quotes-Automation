@@ -1,3 +1,3 @@
 
-## The primary point of this existence is to live, and all living things move and grow.
- #### — **Ming-Dao Deng**
+## Getting lost along your path is a part of finding the path you are meant to be on.
+ #### — **Robin Sharma**
