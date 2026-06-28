@@ -1,3 +1,3 @@
 
-## I am thankful to all who said no to me. It is because of them that I'm doing it myself.
- #### — **Albert Einstein**
+## Productize your perspective.
+ #### — **Jack Butcher**
