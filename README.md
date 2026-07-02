@@ -1,3 +1,3 @@
 
-## Do what you can, with what you have, where you are.
- #### — **Theodore Roosevelt**
+## There are two kinds of perfect people: those who are dead, and those who have not been born yet.
+ #### — **Chinese Proverb**
