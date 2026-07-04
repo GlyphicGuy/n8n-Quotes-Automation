@@ -1,3 +1,3 @@
 
-## There are two kinds of perfect people: those who are dead, and those who have not been born yet.
- #### — **Chinese Proverb**
+## Problems remain as problems because people are busy defending them rather than finding solutions.
+ #### — **Celestine Chua**
