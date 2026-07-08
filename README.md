@@ -1,3 +1,3 @@
 
-## Let my soul smile through my heart and my heart smile through my eyes, that I may scatter rich smiles in sad hearts.
- #### — **Paramahansa Yogananda**
+## Quiet people have the loudest minds.
+ #### — **Stephen Hawking**
