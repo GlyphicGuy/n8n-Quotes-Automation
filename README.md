@@ -1,3 +1,3 @@
 
-## Quiet people have the loudest minds.
- #### — **Stephen Hawking**
+## Heart is what separates the good from the great.
+ #### — **Michael Jordan**
