@@ -1,3 +1,3 @@
 
-## Heart is what separates the good from the great.
- #### — **Michael Jordan**
+## I begin with an idea and then it becomes something else.
+ #### — **Pablo Picasso**
