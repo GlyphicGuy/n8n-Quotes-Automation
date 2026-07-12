@@ -1,3 +1,3 @@
 
-## A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road.
- #### — **Henry Ward Beecher**
+## Walking with a friend in the dark is better than walking alone in the light.
+ #### — **Helen Keller**
