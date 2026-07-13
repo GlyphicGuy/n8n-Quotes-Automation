@@ -1,3 +1,3 @@
 
-## Walking with a friend in the dark is better than walking alone in the light.
- #### — **Helen Keller**
+## The difference between ordinary and extraordinary is that little extra.
+ #### — **Colin R. Davis**
