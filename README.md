@@ -1,3 +1,3 @@
 
-## The difference between ordinary and extraordinary is that little extra.
- #### — **Colin R. Davis**
+## Turn the pain into power.
+ #### — **Unknown**
