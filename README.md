@@ -1,3 +1,3 @@
 
-## Turn the pain into power.
- #### — **Unknown**
+## While we may not be able to control all that happens to us, we can control what happens inside us.
+ #### — **Benjamin Franklin**
