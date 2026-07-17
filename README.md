@@ -1,3 +1,3 @@
 
-## The way out is in.
- #### — **Thich Nhat Hanh**
+## Winners don't Quit. That's why they Win.
+ #### — **Unknown**
