@@ -1,3 +1,3 @@
 
-## Winners don't Quit. That's why they Win.
- #### — **Unknown**
+## Every moment of happiness requires a great amount of Ignorance
+ #### — **Honore de Balzac**
