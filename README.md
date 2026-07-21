@@ -1,3 +1,3 @@
 
-## Every moment of happiness requires a great amount of Ignorance
- #### — **Honore de Balzac**
+## A man's worth is no greater than his ambitions.
+ #### — **Marcus Aurelius**
