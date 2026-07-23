@@ -1,3 +1,3 @@
 
-## Remember we're all in this alone.
- #### — **Lily Tomlin**
+## The secret of perfect health lies in keeping the mind always cheerful - never worried, never hurried, never borne down by any fear, thought or anxiety.
+ #### — **Sathya Sai Baba**
