@@ -1,3 +1,3 @@
 
-## You don't have to be great to start, but you have to start to be great.
- #### — **Zig Ziglar**
+## Man must use what he has, not hope for what is not.
+ #### — **G.I. Gurdjieff**
