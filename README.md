@@ -1,3 +1,3 @@
 
-## Man must use what he has, not hope for what is not.
- #### — **G.I. Gurdjieff**
+## Becoming a great leader doesn't mean being perfect. it means living with your imperfections.
+ #### — **Lolly Daskal**
