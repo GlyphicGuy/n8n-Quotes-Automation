@@ -1,3 +1,3 @@
 
-## Becoming a great leader doesn't mean being perfect. it means living with your imperfections.
- #### — **Lolly Daskal**
+## Work is always an antidote to depression.
+ #### — **Eleanor Roosevelt**
