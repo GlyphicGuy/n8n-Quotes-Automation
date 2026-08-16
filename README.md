@@ -1,3 +1,3 @@
 
-## Work is always an antidote to depression.
- #### — **Eleanor Roosevelt**
+## To be persuasive we must be believable; to be believable we must be credible; to be credible we must be truthful.
+ #### — **David Brinkley**
