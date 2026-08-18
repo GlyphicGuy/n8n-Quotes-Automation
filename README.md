@@ -1,3 +1,3 @@
 
-## To be persuasive we must be believable; to be believable we must be credible; to be credible we must be truthful.
- #### — **David Brinkley**
+## Life is a question and how we live it is our answer.
+ #### — **Gary Keller**
