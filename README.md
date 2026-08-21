@@ -1,3 +1,3 @@
 
-## You are the average of the five people you spend the most time with.
- #### — **Jim Rohn**
+## The worst part of success is trying to find someone who is happy for you.
+ #### — **Bette Midler**
