@@ -1,3 +1,3 @@
 
-## The worst part of success is trying to find someone who is happy for you.
- #### — **Bette Midler**
+## Luck is a matter of preparation meeting opportunity.
+ #### — **Oprah Winfrey**
