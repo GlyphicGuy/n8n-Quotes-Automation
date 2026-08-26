@@ -1,3 +1,3 @@
 
-## Luck is a matter of preparation meeting opportunity.
- #### — **Oprah Winfrey**
+## If you practiced for the day, then you have won. If you were lazy for the day, then you have lost.
+ #### — **Ming-Dao Deng**
