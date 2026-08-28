@@ -1,3 +1,3 @@
 
-## If you practiced for the day, then you have won. If you were lazy for the day, then you have lost.
- #### — **Ming-Dao Deng**
+## The most important thing in communication is to hear what isn't being said.
+ #### — **Peter Drucker**
