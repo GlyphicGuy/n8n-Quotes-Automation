@@ -1,3 +1,3 @@
 
-## The outer conditions of a person's life will always be found to reflect their inner beliefs.
- #### — **James Allen**
+## You have to make time, even for something as universal as staring at the stars.
+ #### — **W.P. Kinsella**
