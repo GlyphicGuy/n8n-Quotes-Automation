@@ -1,3 +1,3 @@
 
-## You have to make time, even for something as universal as staring at the stars.
- #### — **W.P. Kinsella**
+## The greatest work that kindness does to others is that it makes them kind themselves.
+ #### — **Amelia Earhart**
