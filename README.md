@@ -1,3 +1,3 @@
 
-## The greatest work that kindness does to others is that it makes them kind themselves.
- #### — **Amelia Earhart**
+## One loyal friend is worth ten thousand relatives.
+ #### — **Euripides**
