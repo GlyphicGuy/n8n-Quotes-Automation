@@ -1,3 +1,3 @@
 
-## One loyal friend is worth ten thousand relatives.
- #### — **Euripides**
+## The opposite of courage in our society is not cowardice... it is conformity.
+ #### — **Earl Nightingale**
