@@ -1,3 +1,3 @@
 
-## You are free, and that is why you are lost.
- #### — **Franz Kafka**
+## No problem can be solved from the same level of consciousness that created it.
+ #### — **Albert Einstein**
