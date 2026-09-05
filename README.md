@@ -1,3 +1,3 @@
 
-## No problem can be solved from the same level of consciousness that created it.
- #### — **Albert Einstein**
+## Success is never final; failure is never fatal.
+ #### — **Conrad Hilton**
