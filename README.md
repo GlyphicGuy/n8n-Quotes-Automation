@@ -1,3 +1,3 @@
 
-## Success is never final; failure is never fatal.
- #### — **Conrad Hilton**
+## Not how long, but how well you have lived is the main thing.
+ #### — **Seneca**
