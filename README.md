@@ -1,3 +1,3 @@
 
-## There are no secrets to success. It is the result of preparation, hard work, and learning from failure.
- #### — **Colin Powell**
+## Walking with a friend in the dark is better than walking alone in the light.
+ #### — **Helen Keller**
