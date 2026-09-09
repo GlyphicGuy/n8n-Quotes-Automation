@@ -1,3 +1,3 @@
 
-## Walking with a friend in the dark is better than walking alone in the light.
- #### — **Helen Keller**
+## No great discovery was ever made without a bold guess.
+ #### — **Isaac Newton**
