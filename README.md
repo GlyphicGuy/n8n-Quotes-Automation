@@ -1,3 +1,3 @@
 
-## No great discovery was ever made without a bold guess.
- #### — **Isaac Newton**
+## All know the way; few actually walk it.
+ #### — **Bodhidharma**
