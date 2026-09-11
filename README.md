@@ -1,3 +1,3 @@
 
-## All know the way; few actually walk it.
- #### — **Bodhidharma**
+## A gentleman is one who puts more into the world than he takes out.
+ #### — **George Bernard Shaw**
