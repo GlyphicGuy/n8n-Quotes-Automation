@@ -1,3 +1,3 @@
 
-## A gentleman is one who puts more into the world than he takes out.
- #### — **George Bernard Shaw**
+## The person who is his own master cannot tolerate another boss.
+ #### — **Chinese Proverb**
