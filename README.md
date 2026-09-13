@@ -1,3 +1,3 @@
 
-## The person who is his own master cannot tolerate another boss.
- #### — **Chinese Proverb**
+## The temptation to give up is strongest just before victory.
+ #### — **Zen Proverb**
