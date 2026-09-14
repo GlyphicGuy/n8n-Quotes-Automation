@@ -1,3 +1,3 @@
 
-## The temptation to give up is strongest just before victory.
- #### — **Zen Proverb**
+## Make each day a new horizon.
+ #### — **Christopher McCandless**
