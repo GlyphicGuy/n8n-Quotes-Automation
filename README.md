@@ -1,3 +1,3 @@
 
-## Make each day a new horizon.
- #### — **Christopher McCandless**
+## Night is a more quiet time to work. It aids thought.
+ #### — **Alexander Graham Bell**
