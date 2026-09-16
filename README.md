@@ -1,3 +1,3 @@
 
-## Night is a more quiet time to work. It aids thought.
- #### — **Alexander Graham Bell**
+## Fear is what stops you. Courage is what keeps you going.
+ #### — **Unknown**
