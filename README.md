@@ -1,3 +1,3 @@
 
-## If you want to be sad, no one in the world can make you happy. But if you make up your mind to be happy, no one and nothing on earth can take that happiness from you.
- #### — **Paramahansa Yogananda**
+## Do not look upon this world with fear and loathing. Bravely face whatever the gods offer.
+ #### — **Morihei Ueshiba**
