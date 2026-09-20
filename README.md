@@ -1,3 +1,3 @@
 
-## Just as true humor is laughter at oneself, true humanity is knowledge of oneself.
- #### — **Alan Watts**
+## Receive without complaint, Work with fate.
+ #### — **Ming-Dao Deng**
