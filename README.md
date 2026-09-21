@@ -1,3 +1,3 @@
 
-## Receive without complaint, Work with fate.
- #### — **Ming-Dao Deng**
+## What worries you, masters you.
+ #### — **John Locke**
