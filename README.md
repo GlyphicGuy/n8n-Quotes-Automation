@@ -1,3 +1,3 @@
 
-## What worries you, masters you.
- #### — **John Locke**
+## It's easy to be a critic, but being a doer requires effort, risk, and change.
+ #### — **Wayne Dyer**
