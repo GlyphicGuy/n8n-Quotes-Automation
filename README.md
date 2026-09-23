@@ -1,3 +1,3 @@
 
-## It's easy to be a critic, but being a doer requires effort, risk, and change.
- #### — **Wayne Dyer**
+## Never stand begging for that which you have the power to earn.
+ #### — **Miguel de Cervantes**
