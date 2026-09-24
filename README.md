@@ -1,3 +1,3 @@
 
-## Never stand begging for that which you have the power to earn.
- #### — **Miguel de Cervantes**
+## Reversing your treatment of the man you have wronged is better than asking his forgiveness.
+ #### — **Elbert Hubbard**
