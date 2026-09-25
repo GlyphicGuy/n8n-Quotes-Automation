@@ -1,3 +1,3 @@
 
-## Reversing your treatment of the man you have wronged is better than asking his forgiveness.
- #### — **Elbert Hubbard**
+## Be a gift to everyone who enters your life, and to everyone whose life you enter.
+ #### — **Neale Donald Walsch**
