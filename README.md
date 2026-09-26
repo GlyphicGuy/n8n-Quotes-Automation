@@ -1,3 +1,3 @@
 
-## Be a gift to everyone who enters your life, and to everyone whose life you enter.
- #### — **Neale Donald Walsch**
+## If you don't know where you're going, you will probably end up somewhere else.
+ #### — **Laurence J. Peter**
