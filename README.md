@@ -1,3 +1,3 @@
 
-## Natural talent only determines the limits of your athletic potential. It's dedication and a willingness to discipline your life that makes you great.
- #### — **Billie Jean King**
+## Decide what your truth is. Then live it.
+ #### — **Kamal Ravikant**
