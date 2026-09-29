@@ -1,3 +1,3 @@
 
-## Decide what your truth is. Then live it.
- #### — **Kamal Ravikant**
+## Be careful the environment you choose for it will shape you; be careful the friends you choose for you will become like them.
+ #### — **W. Clement Stone**
