@@ -1,3 +1,3 @@
 
-## Even if you persuade me, you won't persuade me.
- #### — **Aristophanes**
+## Before preparing to improve the world, first look around your own home three times.
+ #### — **Chinese Proverb**
