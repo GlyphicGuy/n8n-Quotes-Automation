@@ -1,3 +1,3 @@
 
-## Before preparing to improve the world, first look around your own home three times.
- #### — **Chinese Proverb**
+## The key to success is action.
+ #### — **Brian Tracy**
