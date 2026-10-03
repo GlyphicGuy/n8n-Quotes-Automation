@@ -1,3 +1,3 @@
 
-## The key to success is action.
- #### — **Brian Tracy**
+## Confidence is what you have before you understand the problem.
+ #### — **Woody Allen**
