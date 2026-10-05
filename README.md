@@ -1,3 +1,3 @@
 
-## Absorb what is useful, discard what is not, add what is uniquely your own.
- #### — **Bruce Lee**
+## To know even one life has breathed easier because you have lived. This is to have succeeded.
+ #### — **Ralph Waldo Emerson**
