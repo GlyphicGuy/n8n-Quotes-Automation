@@ -1,3 +1,3 @@
 
-## A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing.
- #### — **George Bernard Shaw**
+## You can suffer the pain of change or suffer remaining the way you are.
+ #### — **Joyce Meyer**
