@@ -1,3 +1,3 @@
 
-## You can suffer the pain of change or suffer remaining the way you are.
- #### — **Joyce Meyer**
+## You cannot push anyone up a ladder unless he is willing to climb a little himself.
+ #### — **Andrew Carnegie**
