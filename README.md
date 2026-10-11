@@ -1,3 +1,3 @@
 
-## You cannot push anyone up a ladder unless he is willing to climb a little himself.
- #### — **Andrew Carnegie**
+## Riches don't make a man rich, they only make him busier.
+ #### — **Christopher Columbus**
