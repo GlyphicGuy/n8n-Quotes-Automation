@@ -1,3 +1,3 @@
 
-## Riches don't make a man rich, they only make him busier.
- #### — **Christopher Columbus**
+## A tiger doesn't lose sleep over the opinion of sheep.
+ #### — **Shahir Zag**
