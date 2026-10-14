@@ -1,3 +1,3 @@
 
-## A tiger doesn't lose sleep over the opinion of sheep.
- #### — **Shahir Zag**
+## Every day is an opportunity to a make a new happy ending.
+ #### — **Jonathan Swift**
