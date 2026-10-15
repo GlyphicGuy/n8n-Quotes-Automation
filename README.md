@@ -1,3 +1,3 @@
 
-## Every day is an opportunity to a make a new happy ending.
- #### — **Jonathan Swift**
+## Your success and happiness lie in you.
+ #### — **Helen Keller**
