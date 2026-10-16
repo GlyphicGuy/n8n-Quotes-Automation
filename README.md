@@ -1,3 +1,3 @@
 
-## Your success and happiness lie in you.
- #### — **Helen Keller**
+## It is amazing what you can accomplish if you do not care who gets the credit.
+ #### — **Harry S. Truman**
