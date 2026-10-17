@@ -1,3 +1,3 @@
 
-## It is amazing what you can accomplish if you do not care who gets the credit.
- #### — **Harry S. Truman**
+## Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility.
+ #### — **Sigmund Freud**
