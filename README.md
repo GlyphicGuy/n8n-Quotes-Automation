@@ -1,3 +1,3 @@
 
-## Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility.
- #### — **Sigmund Freud**
+## Cherish forever what makes you unique, cuz you're really a yawn if it goes.
+ #### — **Bette Midler**
