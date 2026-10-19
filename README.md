@@ -1,3 +1,3 @@
 
-## Cherish forever what makes you unique, cuz you're really a yawn if it goes.
- #### — **Bette Midler**
+## Great minds discuss ideas. Average minds discuss events. Small minds discuss people.
+ #### — **Eleanor Roosevelt**
