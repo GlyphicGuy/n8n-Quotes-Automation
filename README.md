@@ -1,3 +1,3 @@
 
-## Great minds discuss ideas. Average minds discuss events. Small minds discuss people.
- #### — **Eleanor Roosevelt**
+## Of all men's miseries the bitterest is this: to know so much and to have control over nothing.
+ #### — **Herodotus**
