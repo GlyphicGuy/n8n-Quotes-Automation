@@ -1,3 +1,3 @@
 
-## Of all men's miseries the bitterest is this: to know so much and to have control over nothing.
- #### — **Herodotus**
+## It is not fair to ask of others what you are not willing to do yourself.
+ #### — **Eleanor Roosevelt**
