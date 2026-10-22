@@ -1,3 +1,3 @@
 
-## It is not fair to ask of others what you are not willing to do yourself.
- #### — **Eleanor Roosevelt**
+## Whatever you do in life, surround yourself with smart people who'll argue with you.
+ #### — **John Wooden**
