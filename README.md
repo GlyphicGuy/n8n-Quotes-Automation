@@ -1,3 +1,3 @@
 
-## Whatever you do in life, surround yourself with smart people who'll argue with you.
- #### — **John Wooden**
+## He is not a lover who does not love forever.
+ #### — **Euripides**
