@@ -1,3 +1,3 @@
 
-## He is not a lover who does not love forever.
- #### — **Euripides**
+## Success is about creating value.
+ #### — **Candice Carpenter**
