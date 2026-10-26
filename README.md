@@ -1,3 +1,3 @@
 
-## The highest form of ignorance is when you reject something you don't know anything about.
- #### — **Wayne Dyer**
+## At first dreams seem impossible, then improbable, then inevitable.
+ #### — **Christopher Reeve**
