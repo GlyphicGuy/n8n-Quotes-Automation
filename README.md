@@ -1,3 +1,3 @@
 
-## At first dreams seem impossible, then improbable, then inevitable.
- #### — **Christopher Reeve**
+## With the new day comes new strength and new thoughts.
+ #### — **Eleanor Roosevelt**
