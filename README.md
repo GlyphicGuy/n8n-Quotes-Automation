@@ -1,3 +1,3 @@
 
-## With the new day comes new strength and new thoughts.
- #### — **Eleanor Roosevelt**
+## The first man gets the oyster, the second man gets the shell.
+ #### — **Andrew Carnegie**
