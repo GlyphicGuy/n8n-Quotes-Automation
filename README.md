@@ -1,3 +1,3 @@
 
-## Nobody goes through life without a scar.
- #### — **Carol Burnett**
+## Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity.
+ #### — **Og Mandino**
