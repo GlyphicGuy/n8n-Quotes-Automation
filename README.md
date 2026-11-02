@@ -1,3 +1,3 @@
 
-## Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity.
- #### — **Og Mandino**
+## We learn by pushing ourselves and finding what really lies at the outer reaches of our abilities.
+ #### — **Josh Waitzkin**
