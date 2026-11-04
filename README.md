@@ -1,3 +1,3 @@
 
-## Life is a journey, not a destination.
- #### — **Dan Millman**
+## The older you get, the more you understand how your conscience works.
+ #### — **Criss Jami**
