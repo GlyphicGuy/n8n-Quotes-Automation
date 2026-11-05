@@ -1,3 +1,3 @@
 
-## The older you get, the more you understand how your conscience works.
- #### — **Criss Jami**
+## To escape from the world means that one's mind is not concerned with the opinions of the world.
+ #### — **Dogen**
