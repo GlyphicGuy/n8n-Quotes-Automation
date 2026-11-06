@@ -1,3 +1,3 @@
 
-## To escape from the world means that one's mind is not concerned with the opinions of the world.
- #### — **Dogen**
+## The best way to predict your future is to create it.
+ #### — **Abraham Lincoln**
