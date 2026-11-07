@@ -1,3 +1,3 @@
 
-## The best way to predict your future is to create it.
- #### — **Abraham Lincoln**
+## Your only obligation in any lifetime is to be true to yourself.
+ #### — **Richard Bach**
