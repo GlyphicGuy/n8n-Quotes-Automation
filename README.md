@@ -1,3 +1,3 @@
 
-## Your only obligation in any lifetime is to be true to yourself.
- #### — **Richard Bach**
+## Your work is to discover your work and then, with all your heart, to give yourself to it.
+ #### — **Buddha**
