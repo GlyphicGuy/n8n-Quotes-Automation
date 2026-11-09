@@ -1,3 +1,3 @@
 
-## Your work is to discover your work and then, with all your heart, to give yourself to it.
- #### — **Buddha**
+## To do great work one must be very idle as well as very industrious.
+ #### — **Samuel Butler**
