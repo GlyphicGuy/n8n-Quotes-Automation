@@ -1,3 +1,3 @@
 
-## To do great work one must be very idle as well as very industrious.
- #### — **Samuel Butler**
+## What most people need to learn in life is how to love people and use things instead of using people and loving things.
+ #### — **Unknown**
