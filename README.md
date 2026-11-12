@@ -1,3 +1,3 @@
 
-## What most people need to learn in life is how to love people and use things instead of using people and loving things.
- #### — **Unknown**
+## Don't be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed.
+ #### — **Lily Tomlin**
