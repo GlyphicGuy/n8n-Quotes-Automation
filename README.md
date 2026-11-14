@@ -1,3 +1,3 @@
 
-## Nothing is hopeless; we must hope for everything.
- #### — **Euripides**
+## Only when I fall do I get up again.
+ #### — **Vincent van Gogh**
