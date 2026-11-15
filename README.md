@@ -1,3 +1,3 @@
 
-## Only when I fall do I get up again.
- #### — **Vincent van Gogh**
+## Don't set your own goals by what other people make important.
+ #### — **Lolly Daskal**
