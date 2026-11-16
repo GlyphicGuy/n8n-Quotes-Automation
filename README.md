@@ -1,3 +1,3 @@
 
-## Don't set your own goals by what other people make important.
- #### — **Lolly Daskal**
+## With self-discipline, almost anything is possible.
+ #### — **Theodore Roosevelt**
