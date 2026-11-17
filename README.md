@@ -1,3 +1,3 @@
 
-## With self-discipline, almost anything is possible.
- #### — **Theodore Roosevelt**
+## Who can say for sure that one will live to see tomorrow.
+ #### — **Tibetan Proverb**
