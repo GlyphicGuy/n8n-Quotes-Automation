@@ -1,3 +1,3 @@
 
-## The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart.
- #### — **Helen Keller**
+## Remember that this moment is not your life, it's just a moment in your life. Focus on what is in front of you, right now.
+ #### — **Ryan Holiday**
