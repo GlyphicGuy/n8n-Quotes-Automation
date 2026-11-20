@@ -1,3 +1,3 @@
 
-## Remember that this moment is not your life, it's just a moment in your life. Focus on what is in front of you, right now.
- #### — **Ryan Holiday**
+## Many people will walk in and out of your life, but only true friends will leave footprints in your heart.
+ #### — **Eleanor Roosevelt**
