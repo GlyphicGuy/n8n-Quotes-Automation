@@ -1,3 +1,3 @@
 
-## Conquer the devils with a little thing called love.
- #### — **Bob Marley**
+## I like the dreams of the future better than the history of the past.
+ #### — **Thomas Jefferson**
