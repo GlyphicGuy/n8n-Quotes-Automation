@@ -1,3 +1,3 @@
 
-## I like the dreams of the future better than the history of the past.
- #### — **Thomas Jefferson**
+## The greatest step towards a life of simplicity is to learn to let go.
+ #### — **Steve Maraboli**
