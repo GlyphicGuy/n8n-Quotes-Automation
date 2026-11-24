@@ -1,3 +1,3 @@
 
-## The greatest step towards a life of simplicity is to learn to let go.
- #### — **Steve Maraboli**
+## If you want to feel happy, do something for yourself. If you want to feel fulfilled, do something for someone else.
+ #### — **Simon Sinek**
