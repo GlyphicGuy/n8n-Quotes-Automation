@@ -1,3 +1,3 @@
 
-## If you want to feel happy, do something for yourself. If you want to feel fulfilled, do something for someone else.
- #### — **Simon Sinek**
+## Your heart is the size of an ocean. Go find yourself in its hidden depths.
+ #### — **Rumi**
